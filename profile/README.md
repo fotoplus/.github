@@ -6,4 +6,4 @@ specializing in photo and video equipment as well as photoprinting. <br>
 
 <br>
 
-📷  🎥  🎤  💡  🖼️  📦  🚚 
+📷  🎥  🎤  💡  🎞️   🖼️  📦  🚚 
